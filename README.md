@@ -1,1 +1,2 @@
-Eric Ianni
+James Mejia
+mejiaja@oregonstate.edu
